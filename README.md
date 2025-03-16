@@ -8,6 +8,6 @@
 
 - :mailbox: Ask me anything at **[Discussions](https://github.com/Man-Temper/Man-Temper/discussions/new)**
 
-- :computer: Connect with me on **[Telegram](https://t.me/Man_TemPer)** or **[instagram](https://t.me/Man_TemPer)**
+- :computer: Connect with me on **[Telegram](https://t.me/Man_TemPer)** or **[instagram](https://www.instagram.com/man_temper___?igsh=b3dvZGx0NG8wMWR5)**
 
 - :eyes: if you wanna have fun **text me on insta**
