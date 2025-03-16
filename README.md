@@ -10,4 +10,4 @@
 
 - :computer: Connect with me on **[Telegram](https://t.me/Man_TemPer)** or **[instagram](https://t.me/Man_TemPer)**
 
-- :eyes: if you wanna have fun **text me**
+- :eyes: if you wanna have fun **text me on insta**
