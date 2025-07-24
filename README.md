@@ -4,7 +4,7 @@
 
 - :office: I'm a student in **[in the Safi Higher School of Technology (ESTS)](http://www.ests.uca.ma/)**
 
-- :seedling: Currently learning **[basic programming language](https://youtu.be/87SH2Cn0s9A?si=UuwbVwcri-G9hrdi)** & **énergie durable et hydrogène vert([EDHV])(http://www.ests.uca.ma/?page_id=4709)**
+- :seedling: Currently learning **[basic programming language](https://youtu.be/87SH2Cn0s9A?si=UuwbVwcri-G9hrdi)** & **énergie durable et hydrogène vert[EDHV](http://www.ests.uca.ma/?page_id=4709)**
 
 - :mailbox: Ask me anything at **[Discussions](https://github.com/Man-Temper/Man-Temper/discussions/new)**
 
